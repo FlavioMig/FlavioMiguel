@@ -1,1 +1,2 @@
-![0a10af70-6cbf-46df-9071-0ff586a3b1d6](https://user-images.githubusercontent.com/88622001/185749009-6e0c7920-7487-4a7c-a067-2b396d3a009c.gif)
+
+![tenor](https://github.com/FlavioMig/FlavioMiguel/assets/88622001/09fad00a-891e-4153-9a52-231ea2ca758a)
